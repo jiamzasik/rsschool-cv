@@ -4,7 +4,7 @@
 ====
 Phone: +375445814800  
 E-mail: jiazmasik@gmail.com  
-Telegram: @jiazmasik  
+Telegram: @jiamzasik  
 [GitHub](https://github.com/jiamzasik) 
 
 **About Me:**  
